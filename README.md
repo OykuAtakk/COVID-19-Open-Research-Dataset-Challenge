@@ -1,0 +1,1 @@
+# COVID-19-A-k-Ara-t-rma-Veri-Seti-M-cadelesi
